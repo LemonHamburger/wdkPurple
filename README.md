@@ -7,6 +7,8 @@ https://forms.office.com/Pages/ResponsePage.aspx?id=DQSIkWdsW0yxEjajBLZtrQAAAAAA
 
 此外，您可关注我们的微博“五道口边上的Purple”，我们会择期更新相关信息，但考虑到众所周知的情况，建议您通过邮箱联系我们。我们的邮箱是：wdkpurple@outlook.com
 
+我们也会将往期文章上传到这里作为存档。
+
 祝好！
 
 WDK Purple
